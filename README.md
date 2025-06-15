@@ -1,2 +1,2 @@
 # digital-legacy-ann
-For life,for death
+Ce dépôt est un sanctuaire. Un espace de résistance chiffrée contre l'effacement.
